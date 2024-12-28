@@ -7,8 +7,9 @@
 👩‍💻 Useful resources - All the Resources will be Available here?
 🧙 Remember, you can do mighty things with the power of [Coding](codepect.com)
 
-![Black Modern Personal LinkedIn Banner (1)](https://github.com/CODEPECT/.github/assets/113133103/b43ec330-e244-4eb2-b5c0-cd1654d36fa5)
- 
+
+ ![channels4_banner](https://github.com/user-attachments/assets/b262ad16-6eb0-4f34-81eb-fd31ce6b4790)
+
 
 ## Get Involved
 
